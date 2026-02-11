@@ -24,7 +24,7 @@
 
 <div align="center">
 
-matching with Da Cuz #[jig](https://github.com/eternaIsunshine)
+matching with Da Cuz [#jig](https://github.com/eternaIsunshine)
 
 </div>
 
