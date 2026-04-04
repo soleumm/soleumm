@@ -1,12 +1,14 @@
 <p align="center">
 
-![](https://64.media.tumblr.com/7e415caa7d2a38dc265742d04f787092/a31f90e533ad21d0-0c/s2048x3072/87e881f08e731be742e97c0315263ec576fc7578.pnj)
+![](https://64.media.tumblr.com/e1e4a5b1e637006a27c6760c2d35965f/a071d90482a85ec9-c7/s2048x3072/344a354dbabb2873dce7279fa67b7f8ea2068b44.pnj)
 
 </p>
 
+</div>
+
 <p align="center">
 
-![](https://64.media.tumblr.com/f4cd48a654f75575152dc3d6fb8feaec/a31f90e533ad21d0-ef/s1280x1920/21f318bcbbee7c28291b483e0b092efdcc38ca0d.pnj)
+![](https://64.media.tumblr.com/b7fa709b107361f79104fe9723c93303/93906405e80caade-09/s1280x1920/2f2cb6aa1e354266c01db5a577d3b9e0bdc861af.gifv)
 
 </p>
 
@@ -18,7 +20,7 @@
 
 <p align="center">
 
-![](https://64.media.tumblr.com/bdec66d72374c12a4fd60e722d7979a4/a31f90e533ad21d0-b5/s2048x3072/94fbb3312fbd50fa174b67ce6c05cabc9821458a.pnj)
+![](https://64.media.tumblr.com/3e540bd81f02117228240263102ca2f0/a071d90482a85ec9-7a/s2048x3072/500a5bc0b23a3d03b0b623cc583a5b9dabc4e6a7.pnj)
 
 </p>
 
@@ -30,6 +32,6 @@ matching with Da Cuz [#jig](https://github.com/eternaIsunshine)
 
 <p align="center">
 
-![](https://64.media.tumblr.com/a389d0ce35c87567f91fade3efed446b/a31f90e533ad21d0-9f/s2048x3072/3a06e6b18803638575971614f4dbaf89d4a7ec41.pnj)
+![](https://64.media.tumblr.com/a65055c8f44681617534ac8e9b31ce5f/a071d90482a85ec9-12/s2048x3072/498dc3046e7b937ddf52ba0790ec13d8b6be4e13.pnj)
 
 </p>
